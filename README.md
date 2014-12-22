@@ -35,9 +35,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A contemplation of Mysteries:
-contayning the rare effectes and significations
-of certayne Comets, an
+
 1. To his singuler friend mayster Henrie
 Fynche Marchant, Thomas Hyll wisheth
 health and felicitie.
